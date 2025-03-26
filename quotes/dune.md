@@ -1,0 +1,4 @@
+"May thy knife chip and shatter"
+"A great man doesn't seek to lead. He's called to It."
+"AN animal Caught in a Trap will gnaw off its own leg to escape. What will You Do?"
+"When is a gift not a gift?"
